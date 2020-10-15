@@ -1,4 +1,4 @@
 Akanksha Bhasin
 Divyansh Chaurasia
 Parth Jangid<br/>
-Aprajita
+Aprajita Kumari
